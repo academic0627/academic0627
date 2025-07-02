@@ -2,7 +2,7 @@
 - 👀 I’m interested in cyber securty and cyber sport
 - 🌱 I’m currently learning computer science basics
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me : anvarzubaydullayev0627"gmail.com, +998901996687, telegramm:@academic0627
+- 📫 How to reach me : anvarzubaydullayev0627@gmail.com, +998901996687, telegramm:@academic0627
 - 😄 Pronouns: He/his
 - ⚡ Fun fact: I am still single! :)
 
