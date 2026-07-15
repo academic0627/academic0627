@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @academic0627
-- 👀 I’m interested in cyber securty and cyber sport
 - 🌱 I’m currently learning computer science basics
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me : anvarzubaydullayev0627@gmail.com, +998901996687, telegramm:@academic0627
